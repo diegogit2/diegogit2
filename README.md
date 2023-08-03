@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Hi, I am Diego Jeftha 
 I'm an entry-level Software Developer looking for a position where I can continuosly learn on the job. Having studied Electrical engineering in the past, I decided to enroll in Software Development because I took a keen interest in the world of technology and the things it can do.<br>My studies have prepared me to be able to learn rapidly and I'm commited to learning new technologies and languages. I consider myself to be a hard worker who is eager to learn new things.<br>When I'm not studing I also enjoy gaming and the outdoors. 
 
 
